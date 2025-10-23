@@ -1,4 +1,12 @@
-## Hi there 👋
+:pink_heart:【﻿Ａｂｏｕｔ　Ｍｅ】:pink_heart:
+
+20
+ They/Them
+ Certified Femboy 
+ Gay 
+ Linux Enjoyer 
+ Socialist
+
 
 <!--
 **psychoticnmina/psychoticnmina** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
