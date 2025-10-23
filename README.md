@@ -1,18 +1,7 @@
 :pink_heart:【﻿Ａｂｏｕｔ　Ｍｅ】:pink_heart:
-  
- 20
- 
- They/Them
- 
- Certified Femboy 
- 
- Gay 
- 
- Linux Enjoyer 
- 
- Socialist
+Age: 20
 
-
+Pronouns: They/Them
 <!--
 **psychoticnmina/psychoticnmina** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
