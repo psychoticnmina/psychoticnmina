@@ -1,6 +1,6 @@
 :pink_heart:【﻿Ａｂｏｕｔ　Ｍｅ】:pink_heart:
-Age: 20
 
+Age: 20
 Pronouns: They/Them
 <!--
 **psychoticnmina/psychoticnmina** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
