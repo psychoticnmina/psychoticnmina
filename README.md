@@ -1,12 +1,12 @@
 :pink_heart:【﻿Ａｂｏｕｔ　Ｍｅ】:pink_heart:
 
-Age: 20
+20
 
-Pronouns: They/Them
+They/Them
 
 Amateur Programmer
 
-
+Certified Femboy
 <!--
 **psychoticnmina/psychoticnmina** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
