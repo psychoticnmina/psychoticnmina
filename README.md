@@ -1,10 +1,15 @@
 :pink_heart:【﻿Ａｂｏｕｔ　Ｍｅ】:pink_heart:
-
-20
+  
+ 20
+ 
  They/Them
+ 
  Certified Femboy 
+ 
  Gay 
+ 
  Linux Enjoyer 
+ 
  Socialist
 
 
