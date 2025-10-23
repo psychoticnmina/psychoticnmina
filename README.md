@@ -1,11 +1,11 @@
 :pink_heart:【﻿Ａｂｏｕｔ　Ｍｅ】:pink_heart:
 
 20<br>
-They/Them
-
-Amateur Programmer
-
+They/Them<br>
+Amateur Programmer<br>
 Certified Femboy
+
+https://en.pronouns.page/@Nmina
 <!--
 **psychoticnmina/psychoticnmina** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
