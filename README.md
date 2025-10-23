@@ -1,7 +1,6 @@
 :pink_heart:【﻿Ａｂｏｕｔ　Ｍｅ】:pink_heart:
 
-20
-
+20<br>
 They/Them
 
 Amateur Programmer
